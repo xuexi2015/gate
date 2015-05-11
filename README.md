@@ -12,7 +12,8 @@
 ### ►手机、电脑、平板一键翻墙
 ### ►精彩视高速播放
 ### ►永久地址，不被封锁，只需收藏，方便长久使用。
-### ★ta href="https://git.io/vJvcW" target="_blank"><img src="https://d1edyzn5utrkbr.cloudfront.net/Up/0WMYJ0.jpg"  <tr>    <td><a href="https://git.io/vJvcW" target="_blank">
+### ★t  <tr>
+####    <td><a href="https://git.io/vJvcW" target="_blank"><img src="https://d1edyzn5utrkbr.cloudfront.net/Up/0WMYJ0.jpg"  <tr>    <td><a href="https://git.io/vJvcW" target="_blank">
 ### ★t【使用说明】<请务必收藏到手机、电脑书签和收藏夹中，方便长久从浏览器中随时查看。
 #### ★使用前，一定要关闭或卸载360、uc才能翻出墙。
 #### ★xp用户推荐使用谷歌浏览器Chrome，可以顺利打开。
