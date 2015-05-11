@@ -1,5 +1,6 @@
 #网门——2015自由上网全球最人气网站
 ###（推荐指数★★★★★）强烈推荐！！！
+***
   <tr>
 ####    <td><a href="https://git.io/vJvcW" target="_blank"><img src="https://d1edyzn5utrkbr.cloudfront.net/Up/0WMYJ0.jpg"  <tr>    <td><a href="https://git.io/vJvcW" target="_blank"><img src="https://d1fkkgn0boo3on.cloudfront.net/Up/0WMDT0.jpg" /></a></td>
 ### ►【使用说明】点开永久地址后，再点动态地址，打开后就是网门真正主页。
@@ -19,12 +20,15 @@
 #### ★为获得更好的上网体验，强烈推荐所有用户使用谷歌浏览器Chrome，最快最安全最稳定。 
 
 ***
-***
+
 #备用：自由上网简易方法 
-#### 1、关于本页——仅为备用，以网门永久地址为准。
-####【本页地址】http://git.io/vU8t2 （如需要，请收藏）
-#### 2、【自由上网永久地址】http://git.io/vfL6U （请收藏）
+***
+
+#### 【官方永久地址】http://git.io/vfL6U （请收藏）
 #### ★【备用说明】在自由上网简易方法中，可以找到网门。
+***
+#### 2、关于本页——仅为备用，以网门永久地址为准。
+####【本页地址】http://git.io/vU8t2 （如需要，请收藏）
 
 
 
