@@ -12,8 +12,7 @@
 ### ►手机、电脑、平板一键翻墙
 ### ►精彩视频高速播放
 ### ►永久地址，不被封锁，只需收藏，方便长久使用。
-### ★【使用说明】<tr><td><a href="https://git.io/vJvcW" target="_blank"><img src="https://d1edyzn5utrkbr.cloudfront.net/Up/0WMYJ0.jpg"  <tr>    <td><a href="https://git.io/vJvcW" target="_blank"> 
-#### ★请务必收藏到手机、电脑书签和收藏夹中，方便长久从浏览器中随时查看。点开永久地址后，再点动态地址，打开后就是网门真正主页。
+### ★【使用说明】<tr><td><a href="https://git.io/vJvcW" target="_blank"><img src="https://d1edyzn5utrkbr.cloudfront.net/Up/0WMYJ0.jpg"  <tr>    <td><a href="https://git.io/vJvcW" target="_blank">  请务必收藏到手机、电脑书签和收藏夹中，方便长久从浏览器中随时查看。
 #### ★使用前，一定要关闭或卸载360、uc才能翻出墙。
 #### ★xp用户推荐使用谷歌浏览器Chrome，可以顺利打开。
 #### ★QQ用户，请用浏览器的方式打开。
