@@ -1,0 +1,56 @@
+# 网门二维码图片 
+####本页地址   （请大家及时下载，尽快将下载到的图片广传更多新用户，本页地址不要传播他人）
+
+####（图片高清，打开可能会慢，耐心等下就好，双击图片看完整高清大图）
+***
+####14、海水系列（多版本）-单面独立版，不需反面。
+<table>
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 吉祥羊 有框.jpg"  <tr> ▲▲▲吉祥羊-有边框
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 吉祥羊 无框.jpg"  <tr> ▲▲▲吉祥羊-无边框
+</tr>
+<tr>
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 小鸟 有框.jpg"  <tr> ▲▲▲愤怒的小鸟-有边框
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 小鸟 无框.jpg"  <tr> ▲▲▲愤怒的小鸟-无边框
+</tr>
+<tr>
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 指纹 有框.jpg"  <tr> ▲▲▲爱心指纹-有边框
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 指纹 无框.jpg"  <tr> ▲▲▲爱心指纹-无边框
+</tr>
+<tr>
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 机器猫 有框.jpg"  <tr> ▲▲▲机器猫-有边框
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 机器猫 无框.jpg"  <tr> ▲▲▲机器猫-无边框
+
+</tr>
+<tr>
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 福 有框.jpg"  <tr> ▲▲▲福-有边框
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 福 无框.jpg"  <tr> ▲▲▲福-无边框
+
+</tr>
+<tr>
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 童话 有框.jpg"  <tr> ▲▲▲童话-有边框
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 童话 无框.jpg"  <tr> ▲▲▲童话-无边框
+
+</tr>
+<tr>
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 红心 有框.jpg"  <tr> ▲▲▲爱心-有边框
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 红心 无框.jpg"  <tr> ▲▲▲爱心-无边框
+
+</tr>
+<tr>
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 绿色 有框.jpg"  <tr> ▲▲▲城市-有边框
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 绿色 无框.jpg"  <tr> ▲▲▲城市-无边框
+</tr>
+<tr>
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 方绿 有框.jpg"  <tr> ▲▲▲海水绿-有边框
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 方绿 无框.jpg"  <tr> ▲▲▲海水绿-无边框
+</tr>
+<tr>
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 紫色 有框.jpg"  <tr> ▲▲▲海水紫-有边框
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 紫色 无框.jpg"  <tr> ▲▲▲海水紫-无边框
+</tr>
+<tr>
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 蓝色 有框.jpg"  <tr> ▲▲▲海水蓝-有边框
+<td><img src="http://7xjqth.com1.z0.glb.clouddn.com/海水 蓝色 无框.jpg"  <tr> ▲▲▲海水蓝-无边框
+
+</table>
+***
